@@ -1,4 +1,4 @@
-## Hey, I’m chriszanne👋
+## Hey, I’m Chriszanne👋
 <br>
 
 - 🎓 3rd year undergraduate student at University of Westminster.
